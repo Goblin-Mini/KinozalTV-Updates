@@ -73,7 +73,7 @@
 
 По вопросам приобретения, активации и расширения лицензии пишите:
 
-📧 **[kinozal.tv.klient@gmail.com](mailto:kinozal.tv.klient@gmail.com)**
+📧 **[kinozal.tv.klient@gmail.com](mailto:kinozal.tv.klient@gmail.com)** · ✈️ **[@kinozalclient](https://t.me/kinozalclient)**
 
 > Лицензии выдаются вручную. Обработка заявки может занять некоторое время — возможна задержка с выдачей.
 
